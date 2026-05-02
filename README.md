@@ -2,12 +2,6 @@
  
 > A comprehensive multi-platform digital marketing strategy for an imitation jewellery shop — from zero online presence to 8,000+ impressions.
  
-**Course:** Digital Marketing Laboratory (22MDC36)  
-**Submitted by:** Mithra Omprakash (2403717673722027) · Ranjana V R (2403717673722037) · Meghaa Sree S (2403717673722026)  
-**Programme:** M.Sc. Decision and Computing Sciences  
-**Institution:** Coimbatore Institute of Technology  
-**Faculty:** Dr. R. Umarani · Dr. V. Radhamani
- 
 ---
  
 ## About MD Fashions
